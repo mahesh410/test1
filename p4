@@ -1,0 +1,1 @@
+monday tuesdasy wednesday thrusday
